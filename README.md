@@ -11,3 +11,5 @@
 ![IMG_6971](https://user-images.githubusercontent.com/19508013/222557761-0d4fdbcb-2c95-410c-9922-d9d50c820f63.jpeg)
 
 ![CF8E67D2-C900-49BE-8735-81418F298597](https://user-images.githubusercontent.com/19508013/222558211-5594f8b0-2e7e-4e35-9824-40edbc69389e.JPG)
+
+![IMG_1947](https://github.com/shawna-tuli-silicon-valley/oil-painting/assets/19508013/377d94c8-750e-4112-a5a2-3d4406cf524e)
