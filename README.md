@@ -1,3 +1,5 @@
+![IMG_6040](https://github.com/user-attachments/assets/886de236-bada-456d-b3b9-3dbffc5cc0b3)
+![IMG_6039](https://github.com/user-attachments/assets/0e6564d4-73b3-4b28-bb64-ed4c0dab6480)
 ![IMG_3494](https://github.com/shawna-tuli-silicon-valley/california-oil-paint/assets/19508013/e674f2d7-5c82-44a8-9659-dcb67e60886a)
 ![IMG_1947](https://github.com/shawna-tuli-silicon-valley/oil-painting/assets/19508013/377d94c8-750e-4112-a5a2-3d4406cf524e)
 ![CF8E67D2-C900-49BE-8735-81418F298597](https://user-images.githubusercontent.com/19508013/222558211-5594f8b0-2e7e-4e35-9824-40edbc69389e.JPG)
